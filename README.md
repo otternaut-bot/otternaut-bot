@@ -1,2 +1,1 @@
-![Photograph of a fox](./fox7.jpg)
-_Image by [AB Photographie on Shutterstock](https://www.shutterstock.com/image-photo/red-fox-animal-789993919)._
+_Profile picture by Marshal Hedin from San Diego, CC BY-SA 2.0 <https://creativecommons.org/licenses/by-sa/2.0>, via Wikimedia Commons_
